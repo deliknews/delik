@@ -1,0 +1,4 @@
+delik
+=====
+
+deliknewscom
